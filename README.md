@@ -1,0 +1,2 @@
+# senamkognitifintuklansia
+senamlansia
